@@ -1,2 +1,0 @@
-# Projecttt
-KursovProekt35
